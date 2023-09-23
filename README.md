@@ -5,10 +5,10 @@
 - 📫 How to reach me - thirumaranofficial28@gmail.com
 - 
 I am Maybe a Newbie For Now But I am detriment to learn form You
-My major skills are Quick Learining & Thinking , Team Player , a Hard working guy with a smart mind , a problem solver in my school days
-Before Starting any project or any work I do Deep Analytics by myself to get Better Outcomes
-I am product minded guy when I build something I always want to be user friendly in any works ( I am the guy who spent time to give a detail survey for Websites to be user Friendly
-I love to improve culture in my working space
+My major skills are Quick Learining & Thinking , Team Player , a Hard working guy with a smart mind , a problem solver in my school days <br>
+Before Starting any project or any work I do Deep Analytics by myself to get Better Outcomes <br>
+I am product minded guy when I build something I always want to be user friendly in any works ( I am the guy who spent time to give a detail survey for Websites to be user Friendly) <br>
+I love to improve culture in my working space <br>
 I am Willing to Learn Form You - I am Ready face hardpaths for Gain Better Skill Level
 
 
